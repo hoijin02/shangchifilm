@@ -3,9 +3,9 @@ REGARDER-COMPLETs* SHANG-CHI Film Streaming-vf Gratuit en Français 2021
 
 REGARDER] Shang-Chi (2021) Film Streaming Online VF Complet HD,Regarder Regarder Shang-Chi (2021) film complet Regarder!! Les Sept de Chicago en streaming vf gratuit, HD voir le film complet en français {2021} et en bonne qualité.
 
-`░░▒▓██►REGARDER Shang-Chi Streaming VF (2021) <https://t.co/Jp8oKLks8R?amp=1>`_
+`░░▒▓██►REGARDER Shang-Chi Streaming VF (2021) <https://t.co/r65ABO9dIy?amp=1>`_
 
-`░░▒▓██►TÉLÉCHARGER Shang-Chi Film Complet (2021) <https://t.co/Jp8oKLks8R?amp=1>`_
+`░░▒▓██►TÉLÉCHARGER Shang-Chi Film Complet (2021) <https://t.co/r65ABO9dIy?amp=1>`_
 
 1 septembre 2021 en salle / 2h 12min / Action, Fantastique
 De Destin Daniel Cretton
